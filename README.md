@@ -2,8 +2,6 @@
 
 
 ![Screenshot_20220601-060914_IKGPTU Lite](https://user-images.githubusercontent.com/73893413/171307020-606de71d-3796-4598-b826-cf02cd3b60ce.jpg)
-
-
 ![Screenshot_20220601-062133_IKGPTU Lite](https://user-images.githubusercontent.com/73893413/171307038-5f72ee44-8050-4f03-9534-11e04d1f1c6d.jpg)
 
 
